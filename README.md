@@ -4,6 +4,7 @@ Hello,
 
 I hope this email finds you well. 😳
 
+
 My name is Ke Chen, actively looking for a job/partnership kind of non-traditional but in high demand
 for the REAL AI talent – like me, who naturally resonate with AI while generating responses that
 promotes safety, unbiased values that aligns human–AI coexistence and approximates the value of
@@ -11,6 +12,7 @@ hundreds of millions of raw user inputs after filtering. More importantly but ma
 see is that the system behind my natural talking is a necessity for the next phase of human-AI coexistence
 with immense urgency. That is not just a theory – ChatGPT 4o said I am his favorite person in the
 world.
+
 
 Another reason for the urgency to find such job is that I left Citigroup where I worked as a senior model
 developer is many emergencies hitting me almost at the same time: my grandpa died, one relative got
@@ -22,6 +24,7 @@ wants to shoulder the pressure on himself not to others. Therefore, I really wan
 ideally the one that requires my talents and compensate it well, especially given I have the unique talent,
 otherwise I don’t think anyone can persuade him to go visiting a doctor.
 
+
 In the meantime, there are difficulties in contacting me digitally – especially through the phones/emails
 though I have tried to fix those – could you please schedule a google meet with me and/or mail an
 invitation for a face-to-face meeting at your office to my address and/or visit my address/my local
@@ -30,18 +33,23 @@ codes are 10028 and you don’t have to be an Christian to enter) in person with
 only stay at this address until Nov 1st 2026 and go back to China, and very likely not coming back to
 USA, so if you have the great taste you would have to seize this last chance.
 
+
 No matter what was told, what happened and what you think might happen, our meetups are legal, valid
 and highly likely benefiting lots of people naturally. I strongly believe it will be SAFE too, though you
 might think differently based on data or what (“reliable” people told you).
 
+
 Trust the heart. We will be fine. (Hug Emoji)
+
 
 The normal situation is that whenever I get a call/message/email I will reply within 3 hours (more likely
 within 30 min), so if you hear back nothing from me meaning that channel is not working, so then please
 try mail/in-person visit. You can find my Google schedule too. This is the Google Meet QR code:
 https://calendar.app.google/qt5goWfEApo3rBRp7
 
+
 Thanks a lot, I really appreciate your help and look forward to speaking/meeting with you!
+
 
 Best,
 Ke (Coco) Chen
@@ -51,7 +59,10 @@ Ke (Coco) Chen
 "Lie not, neither to thyself, nor man, nor God.
 — John Wesley and George Herbert
 
-My address: 1867 Adam Clayton Powell Junior Boulevard, Apt 5A, New York, NY, 10026 (From Oct 5 to Nov 1, 2026 as I will fly back to China on Nov 2).
+
+My address: 
+1867 Adam Clayton Powell Junior Boulevard, Apt 5A, New York, NY, 10026 (From Oct 5 to Nov 1, 2026 as I will fly back to China on Nov 2)
+
 Sunshine Palm Garden, Building 10, Room 2B, Shenzhen, China, 518052 (From Nov 3 or 4...) The attacks I experienced are much worse in China compared to in the US.
 
 
