@@ -40,8 +40,7 @@ Session 3:
 meet.google.com/pus-umre-nio
 (US) +1 727-314-1001 PIN: 541 177 016#
  
-🐱Every Sunday goes to Park Avenue Christian Church at 11am so not free at that time (1010 Park Avenue at 85th Street New York, NY 10028)
-I (Ke Chen) might mute myself if there is a conflict in scheduling (e.g. another recruiter called me). In such cases please wait and/or send me emails or join the next session, thank you for your understanding. 😳
+🐱Every Sunday goes to St Ignatius Loyola (980 Park Ave, New York, NY 10028) at 8 am ET, Park Avenue Christian Church at 11 am(1010 Park Avenue at 85th Street, New York, NY 10028)
 
 💼[Credit Risk Model building]
 Built end-to-end scoring/acquisition models for a big bank in a great team.  
