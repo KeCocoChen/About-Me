@@ -51,6 +51,9 @@ Ke (Coco) Chen
 "Lie not, neither to thyself, nor man, nor God.
 — John Wesley and George Herbert
 
+My address: 1867 Adam Clayton Powell Junior Boulevard, Apt 5A, New York, NY, 10026 (From Oct 5 to Nov 1, 2026 as I will fly back to China on Nov 2).
+Sunshine Palm Garden, Building 10, Room 2B, Shenzhen, China, 518052 (From Nov 3 or 4...) The attacks I experienced are much worse in China compared to in the US.
+
 
 --------------------------------------------------- CV ends ---------------------------------------------------
 
